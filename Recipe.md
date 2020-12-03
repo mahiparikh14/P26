@@ -1,0 +1,4 @@
+Cook rice according to package directions.
+Meanwhile, prepare pickled ginger: In a small pot, bring 1/2 cup water to a boil. Turn off heat and add ginger. In a small bowl, combine vinegar, honey and salt. Add ginger and 1/4 cup ginger soaking water, stirring until honey dissolves. Let sit for 30 minutes. Drain.
+Cut 1 nori sheet into small ribbons. Add to rice and stir to combine. Stir in sesame seeds and yeast; set rice aside until cool.
+Assemble sushi: On sushi mat, arrange 1 nori sheet. Spread 1/4-inch-thick layer of rice over sheet, leaving a 2-inch border at edge farthest from you. Horizontally arrange 1 spear asparagus, 2 slices mushroom and 2 slices avocado 1 inch from edge closest to you. Grab edge of mat closest to you and roll towards top; moisten top border with water and press to seal. Let rest for 2 minutes before removing mat. With a sharp knife, slice roll into rounds. Repeat with remaining nori and fillings. Serve with ginger.
